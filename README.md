@@ -1,0 +1,1 @@
+This is a projects of odd scripts done for people
